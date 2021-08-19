@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @maikon26
-- 👀 I’m interested in improme my knowledge in developing systens,
+- 👀 I’m interested in improme my knowledge in developing systems,
 - 🌱 I’m currently learning new codes.
 - 💞️ I’m looking to collaborate on peoples that would like learn how developing, we can lear together.
 - 📫 How to reach me at maikonricardo@icloud.com
